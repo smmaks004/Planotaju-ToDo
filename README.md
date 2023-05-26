@@ -1,2 +1,0 @@
-# Planotaju ToDo
- 
